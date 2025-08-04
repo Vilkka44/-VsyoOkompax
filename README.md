@@ -1,2 +1,0 @@
-# -VsyoOkompax
-f
